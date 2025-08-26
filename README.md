@@ -1,1 +1,1 @@
-# lojinha-de-cookie
+# Lojinha de Cookie 🍪
